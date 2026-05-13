@@ -1,4 +1,4 @@
-
+CyberGhost professional Extension: server-locations & kill-switch offers the most advanced CyberGhost extension, with server-locations and kill-switch. Ideal for users who value
 
 
 
